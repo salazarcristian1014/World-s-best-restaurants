@@ -1,0 +1,1 @@
+The World’s 50 Best Restaurants, established in 2002, is an annual list and awards ceremony that celebrates global culinary diversity, showcasing top restaurants and culinary trends through a voting process involving over 1,000 culinary experts from 27 regions.
